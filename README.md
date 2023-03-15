@@ -1,7 +1,7 @@
 # TRIXY ROSE - LOFRANCO
 
-Sour
-Salty
-Face
-Hands
-Feet
+Group Members
+Lyra Nakila
+Sunny Kasil
+Trixy Lofranco
+
